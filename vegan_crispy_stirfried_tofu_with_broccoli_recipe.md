@@ -10,6 +10,7 @@ Tender-crisp crowns of broccoli and crunchy bites of tofu with moist, tender cor
 
 ---
 
+## Tofu and Panade
 - 1 1/2 quarts vegetable or peanut oil
 - 1/2 cup plus 2 teaspoons cornstarch, divided
 - 1/2 cup all-purpose flour
@@ -18,6 +19,7 @@ Tender-crisp crowns of broccoli and crunchy bites of tofu with moist, tender cor
 - 1/2 cup cold water
 - 1/2 cup vodka
 - 1 pound extra-firm tofu, cut into 1/2- by 2- by 1-inch slabs, carefully dried (see note)
+## Stir Fry
 - 1 pound broccoli, cut into 1-inch florets
 - 1/4 cup Xiaoshing wine or dry sherry 
 - 1/4 cup homemade or store-bought low-sodium vegetable stock
