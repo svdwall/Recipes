@@ -10,7 +10,7 @@ Intensive in chocolate, intensive in alcohol!
 
 - *25g* cocoa powder
 - *1 tablespoon* granulated sugar
-- 1 pinch* kosher salt
+- *1 pinch* kosher salt
 - *700ml* whole milk (or oats milk)
 - *100g* bittersweet chocolate (chipped)
 - *100g* milk chocolate (chipped) (or bittersweet as well)
